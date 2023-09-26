@@ -134,4 +134,7 @@
 | 06/22/23 | Glass Editor | Stack Canary Yulia | https://nextyearssnow.bandcamp.com/album/stack-canary-yulia |
 | 06/25/23 | Qotsa | Four Hundred Thirds | https://kiwi-objective-c.bandcamp.com/album/four-hundred-thirds |
 | 08/04/23 | chaya | hold your head up, you silly girl | https://kiwi-objective-c.bandcamp.com/album/hold-your-head-up-you-silly-girl |
-| 09/01/23 | SIMcard styleGAN | "Welcome ∞ Home" | https://nextyearssnow.bandcamp.com/album/welcome-home | i co-produced tracks 2, 4, & 9 and did vocals on track 1 & 3
+| 09/01/23 | SIMcard styleGAN | "Welcome ∞ Home" | https://nextyearssnow.bandcamp.com/album/welcome-home | i co-produced tracks 2, 4, & 9 and did vocals on track 1 & 3 |
+| 9/26/23 | chaya t.n. dj | idk mix.wav | https://chaya-tn-dj.bandcamp.com/album/idk-mix-wav | dj mix made 8/17/21|
+| 9/26/23 | chaya t.n. dj | demented mix.flac | https://chaya-tn-dj.bandcamp.com/album/demented-mix-flac | dj mix made 9/03/21 |
+| 9/26/23 | chaya t.n. dj |  dj mix august 2023​.​flac | https://chaya-tn-dj.bandcamp.com/album/dj-mix-august-2023-flac | dj mix made 8/31/23 |
