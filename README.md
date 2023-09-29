@@ -143,4 +143,5 @@
 | 9/26/23 | chaya t.n. dj | demented mix.flac | https://chaya-tn-dj.bandcamp.com/album/demented-mix-flac | dj mix made 9/03/21 |
 | 9/26/23 | chaya t.n. dj |  dj mix august 2023​.​flac | https://chaya-tn-dj.bandcamp.com/album/dj-mix-august-2023-flac | dj mix made 8/31/23 |
 | 9/28/23 | chaya t.n. dj | other mix.flac | https://chaya-tn-dj.bandcamp.com/album/other-mix-flac | dj mix made 9/20/20 |
+| 9/29/23 | Grayling | Being John Butterflyvich | https://nextyearssnow.bandcamp.com/track/being-john-butterflyvich-papilionidae-ft-grayling-meika-hime | i did vocals as a feature & vocaloid arrangement on this track of the album |
 | 9/29/23 | chaya t.n. dj | untold mix.flac | https://chaya-tn-dj.bandcamp.com/album/untold-mix-flac | dj mix made 9/25/20 |
