@@ -37,12 +37,16 @@
 | 09/02/20 | Bnadkln | Menu Panel | https://theabsorptiondirectory.bandcamp.com/album/menu-panel |
 | 09/04/20 | ƏJ Works | &​í​Ʌ​c | https://theabsorptiondirectory.bandcamp.com/album/c |
 | 09/10/20 | Overbearing Explosive Metal Lotus Revision Second | EF​Г​I | https://theabsorptiondirectory.bandcamp.com/album/ef-i |
+| 09/24/20 | dggggggggd | Undhsf DAEht | https://useseseseu.bandcamp.com/album/undhsf-daeht |
 | 10/01/20 | kirbyanddee | They're Fake | https://paldirect.bandcamp.com/album/theyre-fake | 
 | 10/11/20 | Sleek Rose | 🔒 EXCHANGE ONLY 🔒 | https://theabsorptiondirectory.bandcamp.com/album/exchange-only |
 | 10/13/20 | Elder Strawberry | Profound Exercise Protection | https://theabsorptiondirectory.bandcamp.com/album/profound-exercise-protection |
 | 10/28/20 | Forum Sentiment | Absorption Photograph | https://theabsorptiondirectory.bandcamp.com/album/absorption-photograph |
 | 11/01/20 | Darkened By I | Flames Within the Basket | https://theabsorptiondirectory.bandcamp.com/album/flames-within-the-basket |
+| 11/06/20 | ~NN | Скардар Дизел | https://useseseseu.bandcamp.com/track/--5 | for the lagomorpha gathering compilation |
+| 11/07/20 | 💥 «Star road» |【​【​【​【 | https://useseseseu.bandcamp.com/album/--8 |
 | 11/14/20 | Prodsal | Undegret Brutalisk | https://theabsorptiondirectory.bandcamp.com/album/undegret-brutalisk |
+| 11/14/20 | narrative | transparent sheets of metal | https://useseseseu.bandcamp.com/track/transparent-sheets-of-metal | for galaxy attic compilation | 
 | 11/18/20 | Natasha Navashino | The Terrible Sound You Never Want to Hear While Working on Turbine Engines | https://paldirect.bandcamp.com/album/the-terrible-sound-you-never-want-to-hear-while-working-on-turbine-engines https://nextyearssnow.bandcamp.com/album/the-terrible-sound-you-never-want-to-hear-while-working-on-turbine-engines |
 | 11/23/20 | Seventeen | Final Fourth | https://7form.bandcamp.com/album/final-fourth |
 | 11/23/20 | Natasha Navashino | Library Shoes | https://7form.bandcamp.com/album/library-shoes |
@@ -138,3 +142,5 @@
 | 9/26/23 | chaya t.n. dj | idk mix.wav | https://chaya-tn-dj.bandcamp.com/album/idk-mix-wav | dj mix made 8/17/21|
 | 9/26/23 | chaya t.n. dj | demented mix.flac | https://chaya-tn-dj.bandcamp.com/album/demented-mix-flac | dj mix made 9/03/21 |
 | 9/26/23 | chaya t.n. dj |  dj mix august 2023​.​flac | https://chaya-tn-dj.bandcamp.com/album/dj-mix-august-2023-flac | dj mix made 8/31/23 |
+| 9/28/23 | chaya t.n. dj | other mix.flac | https://chaya-tn-dj.bandcamp.com/album/other-mix-flac | dj mix made 9/20/20 |
+| 9/29/23 | chaya t.n. dj | untold mix.flac | https://chaya-tn-dj.bandcamp.com/album/untold-mix-flac | dj mix made 9/25/20 |
