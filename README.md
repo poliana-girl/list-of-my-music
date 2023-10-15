@@ -145,3 +145,5 @@
 | 9/28/23 | chaya t.n. dj | other mix.flac | https://chaya-tn-dj.bandcamp.com/album/other-mix-flac | dj mix made 9/20/20 |
 | 9/29/23 | Grayling | Being John Butterflyvich | https://nextyearssnow.bandcamp.com/track/being-john-butterflyvich-papilionidae-ft-grayling-meika-hime | i did vocals as a feature & vocaloid arrangement on this track of the album |
 | 9/29/23 | chaya t.n. dj | untold mix.flac | https://chaya-tn-dj.bandcamp.com/album/untold-mix-flac | dj mix made 9/25/20 |
+| 10/6/23 | The Rich Drolet Society | The Story of Rich Fucking Drolet. | https://7form.bandcamp.com/album/the-story-of-rich-fucking-drolet | written by eero |
+| 10/6/23 | chaya t.n. | i built a bomb | https://7form.bandcamp.com/album/i-built-a-bomb |
