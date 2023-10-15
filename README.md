@@ -139,11 +139,12 @@
 | 06/25/23 | Qotsa | Four Hundred Thirds | https://kiwi-objective-c.bandcamp.com/album/four-hundred-thirds |
 | 08/04/23 | chaya | hold your head up, you silly girl | https://kiwi-objective-c.bandcamp.com/album/hold-your-head-up-you-silly-girl |
 | 09/01/23 | SIMcard styleGAN | "Welcome ∞ Home" | https://nextyearssnow.bandcamp.com/album/welcome-home | i co-produced tracks 2, 4, & 9 and did vocals on track 1 & 3 |
-| 9/26/23 | chaya t.n. dj | idk mix.wav | https://chaya-tn-dj.bandcamp.com/album/idk-mix-wav | dj mix made 8/17/21|
-| 9/26/23 | chaya t.n. dj | demented mix.flac | https://chaya-tn-dj.bandcamp.com/album/demented-mix-flac | dj mix made 9/03/21 |
-| 9/26/23 | chaya t.n. dj |  dj mix august 2023​.​flac | https://chaya-tn-dj.bandcamp.com/album/dj-mix-august-2023-flac | dj mix made 8/31/23 |
-| 9/28/23 | chaya t.n. dj | other mix.flac | https://chaya-tn-dj.bandcamp.com/album/other-mix-flac | dj mix made 9/20/20 |
-| 9/29/23 | Grayling | Being John Butterflyvich | https://nextyearssnow.bandcamp.com/track/being-john-butterflyvich-papilionidae-ft-grayling-meika-hime | i did vocals as a feature & vocaloid arrangement on this track of the album |
-| 9/29/23 | chaya t.n. dj | untold mix.flac | https://chaya-tn-dj.bandcamp.com/album/untold-mix-flac | dj mix made 9/25/20 |
-| 10/6/23 | The Rich Drolet Society | The Story of Rich Fucking Drolet. | https://7form.bandcamp.com/album/the-story-of-rich-fucking-drolet | written by eero |
-| 10/6/23 | chaya t.n. | i built a bomb | https://7form.bandcamp.com/album/i-built-a-bomb |
+| 09/26/23 | chaya t.n. dj | idk mix.wav | https://chaya-tn-dj.bandcamp.com/album/idk-mix-wav | dj mix made 8/17/21|
+| 09/26/23 | chaya t.n. dj | demented mix.flac | https://chaya-tn-dj.bandcamp.com/album/demented-mix-flac | dj mix made 9/03/21 |
+| 09/26/23 | chaya t.n. dj |  dj mix august 2023​.​flac | https://chaya-tn-dj.bandcamp.com/album/dj-mix-august-2023-flac | dj mix made 8/31/23 |
+| 09/28/23 | chaya t.n. dj | other mix.flac | https://chaya-tn-dj.bandcamp.com/album/other-mix-flac | dj mix made 9/20/20 |
+| 09/29/23 | Grayling | Being John Butterflyvich | https://nextyearssnow.bandcamp.com/track/being-john-butterflyvich-papilionidae-ft-grayling-meika-hime | i did vocals as a feature & vocaloid arrangement on this track of the album |
+| 09/29/23 | chaya t.n. dj | untold mix.flac | https://chaya-tn-dj.bandcamp.com/album/untold-mix-flac | dj mix made 9/25/20 |
+| 10/01/23 | Oomfie | Purple of Cassius (A Tribute to Paul Klee) | https://oomfie.bandcamp.com/album/purple-of-cassius-a-tribute-to-paul-klee |
+| 10/06/23 | The Rich Drolet Society | The Story of Rich Fucking Drolet. | https://7form.bandcamp.com/album/the-story-of-rich-fucking-drolet | written by eero |
+| 10/06/23 | chaya t.n. | i built a bomb | https://7form.bandcamp.com/album/i-built-a-bomb |
