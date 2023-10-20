@@ -148,3 +148,4 @@
 | 10/01/23 | Oomfie | Purple of Cassius (A Tribute to Paul Klee) | https://oomfie.bandcamp.com/album/purple-of-cassius-a-tribute-to-paul-klee |
 | 10/06/23 | The Rich Drolet Society | The Story of Rich Fucking Drolet. | https://7form.bandcamp.com/album/the-story-of-rich-fucking-drolet | written by eero |
 | 10/06/23 | chaya t.n. | i built a bomb | https://7form.bandcamp.com/album/i-built-a-bomb |
+| 10/20/23 | simcard stylegan | "​Æ​THERIST" | https://nextyearssnow.bandcamp.com/album/therist | collab album w/ me and octa, featuring other scsg members |
