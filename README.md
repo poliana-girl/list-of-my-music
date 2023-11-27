@@ -152,3 +152,6 @@
 | 10/22/23 | Natasha ahsley Navashino | Urocitellus parryii 2nd Iteration | https://7form.bandcamp.com/album/urocitellus-parryii-2nd-iteration | cover art by octa. mix i made with my friend and my brother at Guitar Center |
 | 10/24/23 | jaya t.n. | i started drawing boobies | https://youaremyhalftwist.bandcamp.com/album/i-started-drawing-boobies |
 | 11/11/23 | poliana esperança | the newest trial |  https://youaremyhalftwist.bandcamp.com/album/the-newest-trial |
+| 11/12/23 | poliana esperança | joules | https://youaremyhalftwist.bandcamp.com/album/joules |
+| 11/13/23 | poliana esperança | 21st century anachrony | https://youaremyhalftwist.bandcamp.com/album/21st-century-anachrony |
+| 11/20/23 | poliana esperança | new england clam router | https://youaremyhalftwist.bandcamp.com/album/new-england-clam-router |
