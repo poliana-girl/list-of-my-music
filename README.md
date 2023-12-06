@@ -155,3 +155,5 @@
 | 11/12/23 | poliana esperança | joules | https://youaremyhalftwist.bandcamp.com/album/joules |
 | 11/13/23 | poliana esperança | 21st century anachrony | https://youaremyhalftwist.bandcamp.com/album/21st-century-anachrony |
 | 11/20/23 | poliana esperança | new england clam router | https://youaremyhalftwist.bandcamp.com/album/new-england-clam-router |
+| 11/28/23 | simcard stylegan | ÆTHERIST DELUXE: "​Æ​therist Void" | https://nextyearssnow.bandcamp.com/album/therist-deluxe-therist-void | collab album w/ octa (like previous aetherist) |
+| 12/05/23 | More ？Sugar | " ” | https://218218.bandcamp.com/album/--6 | collab w/ octa & roxy, i made tracks 3, 6 & 9 |
