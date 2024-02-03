@@ -159,3 +159,11 @@
 | 12/05/23 | More ？Sugar | " ” | https://218218.bandcamp.com/album/--6 | collab w/ octa & roxy, i made tracks 3, 6 & 9 |
 | 12/10/23 | poliana esperança | everyone in chicago | https://7form.bandcamp.com/album/everyone-in-chicago |
 | 12/31/23 | Flower Yawns | The yarns | https://nextyearssnow.bandcamp.com/album/the-yarns | collab with octa audry eero & janis |
+| 01/11/24 | poliana esperança | boids dj | https://youaremyhalftwist.bandcamp.com/album/boids-dj |
+| 01/12/24 | poliana esperança | sixpointed cross | https://youaremyhalftwist.bandcamp.com/album/sixpointed-cross |
+| 01/18/24 | Limão | Lim​ã​o feliz no ch​ã​o | https://nationalsecurityagency.bandcamp.com/album/lim-o-feliz-no-ch-o |
+| 01/21/24 | poliana esperança | family guy edit (extended version) | https://youaremyhalftwist.bandcamp.com/album/family-guy-edit-extended-version |
+| 01/22/24 | Guy Derelict | Amazon Letritus | https://nationalsecurityagency.bandcamp.com/album/amazon-letritus |
+| 01/31/24 | poliana esperança | song for my plant | https://youaremyhalftwist.bandcamp.com/album/song-for-my-plant |
+| 02/01/24 | poliana esperança | a corrente | https://youaremyhalftwist.bandcamp.com/album/a-corrente | 
+| 02/03/24 | poliana esperança | treble clefs, go home | https://7form.bandcamp.com/album/treble-clefs-go-home |
