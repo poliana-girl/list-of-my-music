@@ -167,3 +167,4 @@
 | 01/31/24 | poliana esperança | song for my plant | https://youaremyhalftwist.bandcamp.com/album/song-for-my-plant |
 | 02/01/24 | poliana esperança | a corrente | https://youaremyhalftwist.bandcamp.com/album/a-corrente | 
 | 02/03/24 | poliana esperança | treble clefs, go home | https://7form.bandcamp.com/album/treble-clefs-go-home |
+| 02/04/24 | poliana esperança | Pactriser (Poliana's Voidal Lobster Supermodel) | https://lego6.bandcamp.com/track/pactriser-polianas-voidal-lobster-supermodel | remix |
