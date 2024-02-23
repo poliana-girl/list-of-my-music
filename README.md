@@ -169,3 +169,6 @@
 | 02/03/24 | poliana esperança | treble clefs, go home | https://7form.bandcamp.com/album/treble-clefs-go-home |
 | 02/04/24 | poliana esperança | Pactriser (Poliana's Voidal Lobster Supermodel) | https://lego6.bandcamp.com/track/pactriser-polianas-voidal-lobster-supermodel | remix |
 | 02/08/24 | poliana esperança | some girls | https://7form.bandcamp.com/album/some-girls | riffing on this https://7form.bandcamp.com/album/golfers-university |
+| 02/10/24 | poliana esperança | epic poli | https://nextyearssnow.bandcamp.com/album/epic-poli |
+| 02/19/24 | Flower Yawns | Florians | https://nextyearssnow.bandcamp.com/album/florians | collab w/ octa & eero |
+| 02/23/24 | Socksie Youth | Folk Art | https://theabsorptiondirectory.bandcamp.com/album/folk-art |
