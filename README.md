@@ -172,3 +172,7 @@
 | 02/10/24 | poliana esperança | epic poli | https://nextyearssnow.bandcamp.com/album/epic-poli |
 | 02/19/24 | Flower Yawns | Florians | https://nextyearssnow.bandcamp.com/album/florians | collab w/ octa & eero |
 | 02/23/24 | Socksie Youth | Folk Art | https://theabsorptiondirectory.bandcamp.com/album/folk-art |
+| 02/24/24 | Flumeworm | My First Money Ever | https://theabsorptiondirectory.bandcamp.com/album/my-first-money-ever |
+| 03/15/24 | Vippmann, Appleseed & Goliath | Vippmann, Appleseed & Goliath, Attorneys At Law | https://nextyearssnow.bandcamp.com/album/vippmann-appleseed-goliath-attorneys-at-law | collab album w/ jens and octa |
+| 03/16/24 | poliana esperança | burning ship | https://youaremyhalftwist.bandcamp.com/album/burning-ship |
+| 03/16/24 | spinoza jr | god chain | https://theabsorptiondirectory.bandcamp.com/album/god-chain |
