@@ -178,6 +178,7 @@
 | 03/16/24 | spinoza jr | god chain | https://theabsorptiondirectory.bandcamp.com/album/god-chain |
 | 03/26/24 | poliana esperança | kaorin gay movie | https://mirlo.space/poliana-esperanca/release/kaorin-gay-movie | released on some random website but i still think its a bandcamp release in spirit |
 | 04/10/24 | poliana esperança | supercollider recordings for april 🍃 | https://lego6.bandcamp.com/album/supercollider-recordings-for-april |
-| 04/21/14 | poliana esperança | Memory Transfer Mix | https://nonrealtime.bandcamp.com/album/memory-transfer-mix | dj mix
+| 04/21/24 | poliana esperança | Memory Transfer Mix | https://nonrealtime.bandcamp.com/album/memory-transfer-mix | dj mix
 | 04/26/24 | poliana esperança | wazawaza | https://scarletcurtainhall.bandcamp.com/album/wazawaza |
 | 05/08/24 | poliana esperança | rain goes, unidirectional| https://7form.bandcamp.com/album/rain-goes-unidirectional | "milktrance" dj mix |
+| 06/25/24 | poliana esperança | my silly jersey | https://7form.bandcamp.com/album/my-silly-jersey |
