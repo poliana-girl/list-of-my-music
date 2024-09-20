@@ -183,3 +183,4 @@
 | 05/08/24 | poliana esperança | rain goes, unidirectional| https://7form.bandcamp.com/album/rain-goes-unidirectional | "milktrance" dj mix |
 | 06/25/24 | poliana esperança | my silly jersey | https://7form.bandcamp.com/album/my-silly-jersey |
 | 08/28/24 | poliana esperança |  pertencente à madeira e ao arame | https://nextyearssnow.bandcamp.com/album/pertencente-madeira-e-ao-arame |
+| 09/19/24 | aoi | ljana retinal collapse mix 2024 | https://theabsorptiondirectory.bandcamp.com/album/ljana-retinal-collapse-mix-2024 | originally released on soundcloud
