@@ -185,3 +185,5 @@
 | 08/28/24 | poliana esperança |  pertencente à madeira e ao arame | https://nextyearssnow.bandcamp.com/album/pertencente-madeira-e-ao-arame |
 | 09/19/24 | aoi | ljana retinal collapse mix 2024 | https://theabsorptiondirectory.bandcamp.com/album/ljana-retinal-collapse-mix-2024 | originally released on soundcloud |
 | 09/29/24 | SimCard StyleGAN | ¥​€​N $IGN | https://nextyearssnow.bandcamp.com/album/n-ign | i did stuff on this album but im too lazy to figure out what songs rn |
+| 10/15/24 | [The Grand Illusioner] in spiritual conference with [The International Truth Teller] | "Seekonk Emo" | https://7form.bandcamp.com/album/seekonk-emo | split /w octa, im the 1st track |
+| 10/17/24 | poliana esperança | songs for foster cats (& their friends) | https://7form.bandcamp.com/album/songs-for-foster-cats-their-friends |
