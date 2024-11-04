@@ -187,3 +187,4 @@
 | 09/29/24 | SimCard StyleGAN | ¥​€​N $IGN | https://nextyearssnow.bandcamp.com/album/n-ign | i did stuff on this album but im too lazy to figure out what songs rn |
 | 10/15/24 | [The Grand Illusioner] in spiritual conference with [The International Truth Teller] | "Seekonk Emo" | https://7form.bandcamp.com/album/seekonk-emo | split /w octa, im the 1st track |
 | 10/17/24 | poliana esperança | songs for foster cats (& their friends) | https://7form.bandcamp.com/album/songs-for-foster-cats-their-friends |
+| 11/04/24 | 10 Year Phoenix Cycle | moody williamsburg melodic hardcore | https://7form.bandcamp.com/album/moody-williamsburg-melodic-hardcore | collab with audry (my tracks: 1, 4, 6, 7, 9, 10, 11, & 12) but octa made the art and provided samples for track 1 and 12 |
