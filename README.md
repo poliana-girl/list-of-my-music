@@ -191,3 +191,4 @@
 | 11/05/24 | Please Pick Your Answer | which one is a real word? | https://7form.bandcamp.com/album/which-one-is-a-real-word |
 | 11/05/24 | Lovely Name for a Bird | beautiful new baby weightbird | https://7form.bandcamp.com/album/beautiful-new-baby-weightbird | collab with octa |
 | 11/10/24 | hyaluronic acid | uvea | https://7form.bandcamp.com/album/uvea | 
+| 11/10/24 | hyaluronic acid | bos | https://7form.bandcamp.com/album/bos |
