@@ -192,3 +192,6 @@
 | 11/05/24 | Lovely Name for a Bird | beautiful new baby weightbird | https://7form.bandcamp.com/album/beautiful-new-baby-weightbird | collab with octa |
 | 11/10/24 | hyaluronic acid | uvea | https://7form.bandcamp.com/album/uvea | 
 | 11/10/24 | hyaluronic acid | bos | https://7form.bandcamp.com/album/bos |
+| 12/02/24 | SteamApps | OOMFIE | https://nextyearssnow.bandcamp.com/album/oomfie | single for album |
+| 12/18/24 | SteamApps | I'M NOT SCARED. FOR I AM ONLY 21 | https://animevaporwave.bandcamp.com/album/im-not-scared-for-i-am-only-21 | album (ill probably add a msg here when its done)
+| 12/19/24 | poliana esperança | mar v​í​treo | https://7form.bandcamp.com/album/mar-v-treo |
