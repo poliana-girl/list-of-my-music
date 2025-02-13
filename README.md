@@ -194,7 +194,8 @@
 | 11/10/24 | hyaluronic acid | bos | https://7form.bandcamp.com/album/bos |
 | 12/02/24 | SteamApps | OOMFIE | https://nextyearssnow.bandcamp.com/album/oomfie | single for album |
 | 12/18/24 | SteamApps | I'M NOT SCARED. FOR I AM ONLY 21 | https://animevaporwave.bandcamp.com/album/im-not-scared-for-i-am-only-21 | album (ill probably add a msg here when its done)
-| 12/19/25 | poliana esperança | mar v​í​treo | https://7form.bandcamp.com/album/mar-v-treo |
+| 12/19/24 | poliana esperança | mar v​í​treo | https://7form.bandcamp.com/album/mar-v-treo |
 | 01/13/25 | fujoshi querida | wet yaoi kisses | https://theabsorptiondirectory.bandcamp.com/album/wet-yaoi-kisses |
 | 01/14/25 | fujoshi vriska | doooooooomed yaoi & 8ugs | https://7form.bandcamp.com/album/doooooooomed-yaoi-8ugs |
 | 02/08/25 | the barrister | afau | https://7form.bandcamp.com/album/afau |
+| 02/13/25 | Socksie Youth | Socksie Couth | https://theabsorptiondirectory.bandcamp.com/album/socksie-couth |
