@@ -199,3 +199,5 @@
 | 01/14/25 | fujoshi vriska | doooooooomed yaoi & 8ugs | https://7form.bandcamp.com/album/doooooooomed-yaoi-8ugs |
 | 02/08/25 | the barrister | afau | https://7form.bandcamp.com/album/afau |
 | 02/13/25 | Socksie Youth | Socksie Couth | https://theabsorptiondirectory.bandcamp.com/album/socksie-couth |
+| 02/20/25 | Atoll | Rural development / 2019 Zagreb tape | https://7form.bandcamp.com/album/rural-development-2019-zagreb-tape |
+| 04/07/25 | poliana esperança | nixtamalização | https://oomfie.bandcamp.com/album/nixtamaliza-o |
