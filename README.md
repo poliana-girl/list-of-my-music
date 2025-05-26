@@ -201,3 +201,6 @@
 | 02/13/25 | Socksie Youth | Socksie Couth | https://theabsorptiondirectory.bandcamp.com/album/socksie-couth |
 | 02/20/25 | Atoll | Rural development / 2019 Zagreb tape | https://7form.bandcamp.com/album/rural-development-2019-zagreb-tape |
 | 04/07/25 | poliana esperança | nixtamalização | https://oomfie.bandcamp.com/album/nixtamaliza-o |
+| 04/09/25 | poliana esperança | cancelamento de sangue | https://annamite.bandcamp.com/album/cancelamento-de-sangue |
+| 04/19/25 | poliana esperança | montanha felina | https://annamite.bandcamp.com/album/montanha-felina |
+| 05/11/25 | poliana esperança | murmúrio da casa | https://annamite.bandcamp.com/album/murm-rio-da-casa |
