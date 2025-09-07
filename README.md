@@ -204,3 +204,5 @@
 | 04/09/25 | poliana esperança | cancelamento de sangue | https://annamite.bandcamp.com/album/cancelamento-de-sangue |
 | 04/19/25 | poliana esperança | montanha felina | https://annamite.bandcamp.com/album/montanha-felina |
 | 05/11/25 | poliana esperança | murmúrio da casa | https://annamite.bandcamp.com/album/murm-rio-da-casa |
+| 06/02/25 | poliana esperança | tortinitas | https://7form.bandcamp.com/album/tortinitas |
+| 07/29/25 | poliana esperança | setenta e oito pêssegos partidos | https://7form.bandcamp.com/album/tortinitas |
