@@ -206,3 +206,7 @@
 | 05/11/25 | poliana esperança | murmúrio da casa | https://annamite.bandcamp.com/album/murm-rio-da-casa |
 | 06/02/25 | poliana esperança | tortinitas | https://7form.bandcamp.com/album/tortinitas |
 | 07/29/25 | poliana esperança | setenta e oito pêssegos partidos | https://7form.bandcamp.com/album/tortinitas |
+| 09/07/25 | SIMCARD STYLEGAN | Make Hay While the Sun Shines | https://nextyearssnow.bandcamp.com/album/make-hay-while-the-sun-shines |
+| 09/12/25 | poliana esperança | dlim-dlão | https://7form.bandcamp.com/album/dlim-dl-o |
+| 10/30/25 | poliana esperança | queridafunk supercolisor | https://nextyearssnow.bandcamp.com/album/queridafunk-supercolisor | remixes/mashups
+| 11/7/25 | poliana esperança e cia | na mama humana: sessões de ddj-flx4 | https://218218.bandcamp.com/album/na-mama-humana-sess-es-de-ddj-flx4 | mashups/dj sessions previously released on soundcloud 
