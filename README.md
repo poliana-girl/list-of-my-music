@@ -210,3 +210,10 @@
 | 09/12/25 | poliana esperança | dlim-dlão | https://7form.bandcamp.com/album/dlim-dl-o |
 | 10/30/25 | poliana esperança | queridafunk supercolisor | https://nextyearssnow.bandcamp.com/album/queridafunk-supercolisor | remixes/mashups
 | 11/7/25 | poliana esperança e cia | na mama humana: sessões de ddj-flx4 | https://218218.bandcamp.com/album/na-mama-humana-sess-es-de-ddj-flx4 | mashups/dj sessions previously released on soundcloud 
+| 12/18/25 | simcard stylegan | ÆTHERIST III: A Tale of Two Phones | https://nextyearssnow.bandcamp.com/album/therist-iii-a-tale-of-two-phones | co-director, producer, rapper, drama, sketch comedy, etc. |
+| 12/31/25 | poliana esperança | olhar fixo da kaguya | https://lego6.bandcamp.com/track/olhar-fixo-da-kaguya |
+| 01/27/26 | OIXEAUX | CRIES𝅘𝅥𝅮 | https://animevaporwave.bandcamp.com/album/cries | rapper (?) & producer |
+| 06/01/26 | hyaluronic acid | acid | https://7form.bandcamp.com/album/acid |
+| 07/10/26 | Glass Editor | Carcinogen | https://nextyearssnow.bandcamp.com/album/carcinogen |
+| 07/12/26 | poliana esperança | para junho e julho |  https://7form.bandcamp.com/album/para-junho-e-julho |
+| 08/07/26 | poliana esperança | estudos 1-5 | https://7form.bandcamp.com/album/estudos-1-5 | 
